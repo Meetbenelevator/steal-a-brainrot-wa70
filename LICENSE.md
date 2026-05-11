@@ -1,4 +1,4 @@
-#  
+#  secure Scripts for steal a brainrot offers the most advanced steal a brainrot Script, with infinite resources and custom skins. Perfect for
 
 
 
